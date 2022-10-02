@@ -10,3 +10,5 @@ we know you want to show off your fabulous furry face, so we ,ve given you space
 
 
 Open the Hawt Dawg app and click on "Eidt profile."
+
+## Photos are nice and all, but I don't see very well. How can I smell the other dogs?
